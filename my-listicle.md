@@ -1,4 +1,3 @@
-# My Listicle
 # List of Card Games
 Want just a simple card game of ridiculous cats and chance?
 ## 1. Exploding Kittens
@@ -7,7 +6,8 @@ Want to play with a new look?
 Or some theivery on the side?
 ### - [Cat Burglar Edition](
 Or try it with new look and some new rules?
-### - [Zombie Kittens]
+### - [Exploding Kittens Good v. Evil](https://www.explodingkittens.com/products/good-vs-evil?nosto=categorypage-nosto-2-fallback-nosto-1) 
 
-3. 
+
+
 [Exploding Kittens Website](https://www.explodingkittens.com/collections/games?srsltid=AfmBOorqLJyRs35zwF7TkuZLZ98tVyzpyqbZzfB5M7IZn7iW5xzixvdp)
