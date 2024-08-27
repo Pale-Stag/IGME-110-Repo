@@ -6,9 +6,9 @@ Want to expand the chaos?
 Or some theivery on the side?
 ## - [Cat Burglar Edition](https://www.explodingkittens.com/products/exploding-kittens-cat-burglar-edition)
 Or try it with new look and some new rules?
-## - [Exploding Kittens Good v. Evil](https://www.explodingkittens.com/products/good-vs-evil?nosto=categorypage-nosto-2-fallback-nosto-1) 
+## - [Exploding Kittens Good vs. Evil](https://www.explodingkittens.com/products/good-vs-evil?nosto=categorypage-nosto-2-fallback-nosto-1) 
 ---
-# 2. Poetry for Neanderthals 
+# 2. [Poetry for Neanderthals](https://www.explodingkittens.com/products/poetry-for-neanderthals)
 ---
 More thievery, more color, and sweet revenge
 # 3. [Mantis](https://www.explodingkittens.com/products/mantis)
