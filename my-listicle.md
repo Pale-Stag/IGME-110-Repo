@@ -1,8 +1,8 @@
 # List of Card Games
-Want just a simple card game of ridiculous cats and chance?
 # 1. Exploding Kittens
-Want to expand the choas?
-## - [Imploding Kittens](https://www.explodingkittens.com/products/imploding-kittens-expansion-of-exploding-kittens)
+Want just a simple card game of ridiculous cats and chance?
+Want to expand the chaos?
+##   - [Imploding Kittens](https://www.explodingkittens.com/products/imploding-kittens-expansion-of-exploding-kittens)
 Or some theivery on the side?
 ## - [Cat Burglar Edition](https://www.explodingkittens.com/products/exploding-kittens-cat-burglar-edition)
 Or try it with new look and some new rules?
@@ -10,8 +10,11 @@ Or try it with new look and some new rules?
 ---
 # 2. Poetry for Neanderthals 
 ---
-More thievery, more color, mayhem
-# 3. Mantis
+More thievery, more color, and sweet revenge
+# 3. [Mantis](https://www.explodingkittens.com/products/mantis)
+---
+A war between babies and "bears"
+# 4. [Bears v. Babies](https://www.explodingkittens.com/products/bears-vs-babies-original-edition)
 
 
 [Exploding Kittens Website](https://www.explodingkittens.com/collections/games?srsltid=AfmBOorqLJyRs35zwF7TkuZLZ98tVyzpyqbZzfB5M7IZn7iW5xzixvdp)
