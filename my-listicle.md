@@ -11,7 +11,7 @@ Or try it with new look and some new rules?
 A guessing game of simple words and simple rules- speak good or get hit with the (inflatable) stick
 # 2. [Poetry for Neanderthals](https://www.explodingkittens.com/products/poetry-for-neanderthals)
 Want to challenge your pop culture knowledge?
-[Pop Culture Edition](https://www.explodingkittens.com/products/poetry-for-neanderthals-pop-culture)
+## -[Pop Culture Edition](https://www.explodingkittens.com/products/poetry-for-neanderthals-pop-culture)
 ---
 More thievery, more color, and sweet revenge
 # 3. [Mantis](https://www.explodingkittens.com/products/mantis)
